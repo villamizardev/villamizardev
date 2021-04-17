@@ -17,3 +17,12 @@ You can still contact me by:
 - 🕺💃 dance latin music (in couple)
 - 😅 etc, etc, etc
 
+🚀 I have not an specific mentor, but I think there are many person that have get contribute good stuff to the world, Elon Musk is one them. He's a visionary, has futuristic ideas, is building the future. It's so great entrepreneur. I admire him.
+
+> _When something is important enought,
+> you do it, even if the odds 
+> are not in your favor_
+> 
+> **Elon Musk**
+
+
